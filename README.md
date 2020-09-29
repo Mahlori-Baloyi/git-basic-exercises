@@ -1,2 +1,2 @@
-arigato
-gazaimasu
+booya
+
